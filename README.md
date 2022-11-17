@@ -12,7 +12,7 @@ My name is Daria, but you can call me Dasha. I grew up in Siberia and Moscow, go
 
 - ⚡ Fun fact: I went to Thailand for a month and spent there a whole year.
 
-I'm best reached via email: <xufana@icloud.com>
+I'm best reached via email: <xufana@icloud.com> or [telegram](t.me/xufana)
 
 ---
 
